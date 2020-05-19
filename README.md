@@ -1,2 +1,1 @@
-# dimchikk.github.io
-GitHub Pages
+я случайно....
